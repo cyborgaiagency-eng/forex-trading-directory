@@ -27,7 +27,7 @@ Discover forex brokers, prop trading firms, trading platforms, market-data provi
 
 Interested in being featured?
 
-Contact: your-email@example.com
+Contact: cyborg.ai.agency@gmail.com
 
 *Paid placements, if any, will be clearly disclosed.*
 
